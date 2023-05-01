@@ -1,1 +1,1 @@
-# junior.github.io
+# juniorstudzinski.github.io
